@@ -1,4 +1,4 @@
-## Hiiiiiiiiiii
+## ITSA ME
 
 - 🌸 Sou a Inês 
 - 👩‍💻 Estudo engenharia informática na feup
