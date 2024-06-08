@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hiiiiiiiiiii
+
+- 🌸 Sou a Inês 
+- 👩‍💻 Estudo engenharia informática na feup
+- 😁 Sou fixe (real)
 
 <!--
 **inesp20/inesp20** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
